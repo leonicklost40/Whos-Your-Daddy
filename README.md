@@ -216,4 +216,4 @@ Who's Your Daddy is available as a full free version with all features and updat
 Don’t miss out on the fun! Download Who's Your Daddy free today and enjoy a unique gaming experience that’s perfect for everyone!
 
 ---
-**Last updated:** 2026-09-19 20:20:58 UTC
+**Last updated:** 2026-09-19 22:47:50 UTC
